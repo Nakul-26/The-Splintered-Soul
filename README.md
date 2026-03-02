@@ -1,2 +1,2 @@
 # The-Splintered-Soul
-This is the story that teaches human nature 
+This is the story that teaches human nature - Awakened Student's Void-....
